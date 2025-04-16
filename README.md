@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm Pranav Bhadane!
+# 👋 Hey there, I'm Pranav!
 
 🎓 Dual Degree Student @ IIT Kharagpur (Industrial & Systems Engineering)  
 🧠 AI Enthusiast | 🧑‍💻 Developer | ☁️ Cloud Practitioner  
